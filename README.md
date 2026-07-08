@@ -1,6 +1,6 @@
 # Rahul Rao
 
-MCA Student · AI/ML Enthusiast · Football Obsessive
+MCA Student · AI/ML Enthusiast 
 
 ---
 
